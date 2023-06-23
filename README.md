@@ -4,10 +4,15 @@ Vocabulary is divided into four groups.
 
 ## Group 1. Adjectives describing quantity and degree
 abundant: Something that is abundant is present in large quantities.
+
 ample: If there is an ample amount of something, there is enough of it, and usually some extra.
+
 marked: A marked change or difference is very obvious and easily noticed.
+
 modest: You use modest to describe something such as an amount, rate, or improvement which is fairly small.
+
 negligible: An amount or effect that is negligible is so small that it is not worth considering or worrying about.
+
 vast: Something that is vast is extremely large.
 
 ## Group 2. Adjectives describing the degree of certainty
