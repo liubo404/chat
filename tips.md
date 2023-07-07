@@ -26,3 +26,4 @@ This means that she thinks that hard work and perseverance are the reasons or th
 
 I hope this helps you understand the meaning of “credited”. Do you have any other questions?
 
+- whats' the pronunciation of "spiral"?

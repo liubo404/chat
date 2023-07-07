@@ -9,3 +9,4 @@ correct:
 
 On Saturday, as Wagner troops occupied Rostov-on-Don, Putin accuse the private military company's leadership of delivering a "stab in the back" comparable to that of 1917, and of giving aid and comfort to the enemy.
 
+Russian President Putin credited the patriotic spirit of the nation for avoiding bloodshed and again condemned the "treasonous" mutiny by the private military company Wagner.
